@@ -113,4 +113,4 @@ I'm always open to discussing opportunities in operations, supply chain manageme
 
 ---
 
-*This README was generated based on my professional resume. Last updated: December 2024*
+*This README was generated based on my professional resume. Last updated: October 2025*

@@ -2,7 +2,7 @@
 
 ### **Executive Trainee | Operations & Supply Chain | Process Improvement**
 
-📍 New Delhi | 📧 tanishadev17092000@gmail.com | 🔗 [LinkedIn](http://linkedin.com/in/tanisha)
+📍 New Delhi | 📧 devtanisha17.com | 🔗 [LinkedIn]([(https://www.linkedin.com/in/tanisha-dev-692305214/)])
 
 ---
 
